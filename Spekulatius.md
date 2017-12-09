@@ -18,6 +18,6 @@
 
 => Zu einem glatten Mürbeteig verkneten
 
-=> Über Nacht (bis maximal 2 Tage) kaltstellen
+=> Über Nacht (mindestens eine Stunde bis maximal 2 Tage) kaltstellen
 
 175°C, mittlere Schiene, 13-16 Minuten backen. Abhängig von Modeldicke.
