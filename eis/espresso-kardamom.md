@@ -1,11 +1,11 @@
 # Espresso-Kardamom-Eis
 
 ## Zutaten
-15g frisch gemahlener Espresso
-2g geröstete und geriebene Kardamomkapseln
-550ml Milch
-100ml Sahne
-7 Eigelb (ich nehme mal 3)
+* 15g frisch gemahlener Espresso
+* 2 geröstete und geriebene Kardamomkapseln
+* 550ml Milch
+* 100ml Sahne
+* 7 Eigelb (ich nehme mal 3)
 
 ## Zubereitung
 * In warmer Milch, Espresso und Kardamom 10 Minuten ziehen lassen. Durch ein feines Sieb filtern
