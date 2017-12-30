@@ -5,6 +5,7 @@
 * 2 geröstete und geriebene Kardamomkapseln
 * 550ml Milch
 * 100ml Sahne
+* 160g Zucker
 * 7 Eigelb (ich nehme mal 3)
 
 ## Zubereitung
