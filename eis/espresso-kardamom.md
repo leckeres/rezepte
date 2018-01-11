@@ -18,3 +18,6 @@
 * Durch ein feines Sieb passieren, im Eiswasser abkühlen lassen 
 * Über Nacht reifen lassen
 
+## Oder...
+* Vanilleeisrezept nehmen und die Milch-Sahne-Mischung mit Espresse und Kardamom durchziehen lassen.
+
