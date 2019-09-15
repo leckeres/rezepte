@@ -3,7 +3,7 @@
 ## Zutaten
 * 625ml Milch
 * 150ml Sahne
-* 120g, Braun & Kristall
+* 120g, Brauner Zucker & Kristallzucker 
 * 3 Eigelb
 * 30g Vanilleschote - oder 1/2 TL gemahlene Schote
 
