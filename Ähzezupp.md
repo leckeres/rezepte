@@ -2,6 +2,7 @@
 
 ## Erster Topf
 * 1 kg halbierte, geschälte Trockenerbsen
+
 Über Nacht in 2l abgekochtem Wasser einweichen	
 45min kochen und mit Schneebesen verrühren, bis keine Erbsen mehr hart sind und einige püriert. Wahrscheinlich Wasser dazugeben.
 Ausprobieren: 2 zerdrückte Knoblauchzehen dazu
