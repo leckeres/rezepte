@@ -15,10 +15,12 @@ Alles schön kleinschneiden
 * 4 Knoblauchzehen
 * 1 Lorbeerblatt
 * 2 EL Brühe 
+
 Wassermenge sollte relativ wenig sein, dann kann man hinterher besser justieren.
 
 ## Sonst noch
 8 Scheiben Speck kleinhacken und auslassen
+
 Gerne auch mit fettem Speck!
 
 Kartoffelgemüse kellenweise zur Erbsensuppe geben, bis die richtige Mischung erreicht ist. 50% so etwa. Speck dazu. Grob abschmecken. Kalt werden lassen.
