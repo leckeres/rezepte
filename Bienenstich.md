@@ -27,6 +27,7 @@ Salz
 
 -----
 
-Abgekühlte Masse auf dem Mürbeteig verstreichen
+Abgekühlte Masse auf dem Mürbeteig verstreichen.
+
 Bei 200°C 30 Minuten backen.
 
