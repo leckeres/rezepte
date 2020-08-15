@@ -4,6 +4,7 @@
 100g Butter
 VZ, Salz
 1x Hefe
+40g Zucker
 
 ## Streusel
 300g Mehl
