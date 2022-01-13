@@ -1,7 +1,7 @@
 # Markklößchen
 
 * 2 Scheiben entkrustetes Weißbrot - Kastenweißbrot, leicht mit Rinderbrühe angefeuchtet
-* 4 Zwiebäcke draufreiben, sehr fein
+* 4 Zwiebäcke draufreiben, sehr fein - oder 40-50g Paniermehl
 * 1 Markknochen Mittelbein Mark auskratzen, in kleinem Topf bei sanfter Hitze verflüssigen
     * durch ein feines Sieb vorsichtig auf Brotbett geben
     * ungefähr 2-6 cl 
