@@ -16,4 +16,4 @@
 2. Schokolade im Wasserbad schmelzen. Butter leicht erwärmen, bis sie gerade flüssig ist.
 3. Eimasse, Schokolade und Butter zusammenrühren, dann gesiebtes Mehl, Kakao, Walnusskerne kurz in die Masse rühren
 4. In einen mit Backpapier ausgelegten 25cm x 25cm Backrahmen füllen. Etwa eine halbe Stunde bei 180 °C backen. Mit Zahnstocher probieren, wann der Kuchen den gewünschten saftigen Kern hat. 
-5. Nach dem Erkalten in 5 mal 5 cm große Würfel schneiden. Mit Puderzucker bestreuen und in Petitfour-Schalen setzen.
+
