@@ -1,5 +1,5 @@
 * 250ml Vollmilch
-*135g Zucker
+* 135g Zucker
 * 20g Hefe
 * 580g Mehl
 * 1 TL Salz
